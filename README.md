@@ -5,7 +5,7 @@
 
 📚 Estudo programação | 4/5 <br>
 🍔 Trabalho com Delivery | microempresária <br>
-👨‍💻 A procura de estágio na área de TI <br>
+👨‍💻 A procura de estágio na área de ´desenvolvimento <br>
 🤜🤛 Compartilhando conhecimento e experiência
 
 <br>
