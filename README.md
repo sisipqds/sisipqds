@@ -3,7 +3,7 @@
 
 
 
-📚 Estudo programação | 4/5 <br>
+📚 Estudo programação e sou formada em Análise em desenvolvimento de sistemas <br>
 🍔 Trabalho com Delivery | microempresária <br>
 👨‍💻 A procura de estágio na área de desenvolvimento <br>
 🤜🤛 Compartilhando conhecimento e experiência
